@@ -1,7 +1,5 @@
-Whatsapp:+25421257024
+Whatsapp:+25438354165
 
 
+Kindly reach out .Thanks 
 
-
-This is my 
-github email:intelligentsoftwaresdev@gmail.com
